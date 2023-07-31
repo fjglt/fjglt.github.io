@@ -1,6 +1,5 @@
 # 橄榄头官网⭐收藏防丢失
-👉[橄榄头官网-主](https://www.ganlantou.com/)👈  https://www.ganlantou.com/  
-👉[橄榄头官网-备](https://www.fjglt.cn/)👈  https://www.fjglt.cn/  
+👉[橄榄头官网永久地址](https://www.fjglt.cn/)👈  https://www.fjglt.cn/  
 # 全国流量卡套餐购买
 👉[大流量卡购买1](http://gantanhao.vip/91haoka_platform/#/minishop?share_id=399227)👈 流量优惠卡套餐购买 http://gantanhao.vip/91haoka_platform/#/minishop?share_id=399227  
 
