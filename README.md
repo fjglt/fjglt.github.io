@@ -3,9 +3,11 @@
 # 全国流量卡套餐购买
 👉[大流量卡购买1](http://gantanhao.vip/91haoka_platform/#/minishop?share_id=399227)👈 流量优惠卡套餐购买 http://gantanhao.vip/91haoka_platform/#/minishop?share_id=399227  
 
+👉[大流量卡购买1【长期套餐专区】](https://docs.qq.com/sheet/DSU1Gc013TkhISnNH)👈 大流量卡购买1【长期套餐专区】 https://docs.qq.com/sheet/DSU1Gc013TkhISnNH  
+
 👉[大流量卡购买2](http://qlmf.05321888.com/page/shop.html?id=5271)👈  http://qlmf.05321888.com/page/shop.html?id=5271  
 
-👉[大流量卡购买3](http://qr61.cn/oW63fk/qDCIB6O)👈 少 http://qr61.cn/oW63fk/qDCIB6O  
+👉[大流量卡购买3](https://card.wi-fi.cn/dist/index.html?source1=%E5%8F%B7%E5%8D%A1%E5%B9%BF%E5%9C%BA&sourcetype=zhushou&channel=zhushou&showBanner=false&seller_id=4141#/allpromotion)👈  
 
 # 优惠充值
 👉[9折起充值话费电燃娱乐](http://qr61.cn/oW63fk/q1aD7Pf)👈 请在微信中打开 http://qr61.cn/oW63fk/q1aD7Pf  
@@ -17,7 +19,7 @@
 👉[百度网盘SVIP188](https://pan.baidu.com/wap/vip/user?active_svip=1y_auto&activetab=svip&from=shequn&activity_id=132686988468&ext=%7B%22bcode%22%3A%2283393974a85c1170843a3076a35e1e778b393975a85f147580393275a45c1076873b3177a0551573%22%7D)👈  
 
 # 运营商活动
->   福建活动-//工号佬可以联系我，欢迎合作共赢！  
+>   福建活动
   
 👉[福建移动活动链接](http://f0q.cn/1pollw)👈  http://f0q.cn/1pollw  
 
