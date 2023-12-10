@@ -1,7 +1,7 @@
 # 橄榄头官网⭐收藏防丢失
 👉[橄榄头官网永久地址](https://www.fjglt.cn/)👈  https://www.fjglt.cn/  
 # 全国流量卡套餐购买
-👉[大流量卡购买1](http://gantanhao.vip/91haoka_platform/#/minishop?share_id=399227)👈 流量优惠卡套餐购买 http://gantanhao.vip/91haoka_platform/#/minishop?share_id=399227  
+👉[大流量卡购买1](http://card.haokale.com/?id=2369)👈 流量优惠卡套餐购买 http://mrw.so/5EX2Ju  
 
 👉[大流量卡购买1【长期套餐专区】](https://docs.qq.com/sheet/DSU1Gc013TkhISnNH)👈 大流量卡购买1【长期套餐专区】 https://docs.qq.com/sheet/DSU1Gc013TkhISnNH  
 
