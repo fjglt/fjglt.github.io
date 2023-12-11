@@ -3,11 +3,7 @@
 # 全国流量卡套餐购买
 👉[大流量卡购买1](http://card.haokale.com/?id=2369)👈 流量优惠卡套餐购买 http://mrw.so/5EX2Ju  
 
-👉[大流量卡购买1【长期套餐专区】](https://docs.qq.com/sheet/DSU1Gc013TkhISnNH)👈 大流量卡购买1【长期套餐专区】 https://docs.qq.com/sheet/DSU1Gc013TkhISnNH  
-
-👉[大流量卡购买2](http://qlmf.05321888.com/page/shop.html?id=5271)👈  http://qlmf.05321888.com/page/shop.html?id=5271  
-
-👉[大流量卡购买3](https://card.wi-fi.cn/dist/index.html?source1=%E5%8F%B7%E5%8D%A1%E5%B9%BF%E5%9C%BA&sourcetype=zhushou&channel=zhushou&showBanner=false&seller_id=4141#/allpromotion)👈  
+👉[大流量卡购买2](https://card.wi-fi.cn/dist/index.html?source1=%E5%8F%B7%E5%8D%A1%E5%B9%BF%E5%9C%BA&sourcetype=zhushou&channel=zhushou&showBanner=false&seller_id=4141#/allpromotion)👈  
 
 # 优惠充值
 👉[9折起充值话费电燃娱乐](http://qr61.cn/oW63fk/q1aD7Pf)👈 请在微信中打开 http://qr61.cn/oW63fk/q1aD7Pf  
