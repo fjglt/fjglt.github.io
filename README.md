@@ -29,6 +29,8 @@
 
 👉[北京移动活动链接](https://f0q.cn/1yhl8w)👈  http://f0q.cn/1yhl8w  
 
+👉[广东移动活动链接](https://f0q.cn/1UM1KX)👈  https://f0q.cn/1UM1KX  
+
 👉[宁夏电信活动链接](https://f0q.cn/1jeXQy)👈  http://f0q.cn/1jeXQy  
 
 # 流量消耗（快速消耗流量）
